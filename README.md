@@ -9,11 +9,5 @@ is my alternative email so it might take me a bit to respond back but feel free 
 
 My timezone is UTC-5
 
-My favorite games (top favorites):
-
-1. Five Nights at Freddy's
-2. Geometry Dash
-3. Terraria
-4. Phantasy Star Online
-5. Mariokart 8
-6. Super Smash Bros Ultimate
+My favorite games (top favorites)
+Five Nights at Freddy's, Geometry Dash, Terraria, Phantasy Star Online, Mariokart 8, Super Smash Bros Ultimate
